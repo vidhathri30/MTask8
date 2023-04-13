@@ -1,5 +1,5 @@
 # MTASK 8
-<img scr="https://user-images.githubusercontent.com/101579638/231865415-3ffa8c9c-c4b0-419e-a424-bc121b5e802c.jpeg" width=50% height=50%>
-<img scr="https://user-images.githubusercontent.com/101579638/231865422-72d885c3-62be-4924-b6ae-cac43c91f506.jpeg" width=50% height=50%>
-<img scr="https://user-images.githubusercontent.com/101579638/231865436-9157a688-9dfc-4f46-b5b9-3ace146a7f34.jpeg" width=50% height=50%>
+![WhatsApp Image 2023-04-14 at 1 06 03 AM](https://user-images.githubusercontent.com/101579638/231866217-c778bf15-fad5-4efc-9a4e-37a645b72cb1.jpeg)
+![WhatsApp Image 2023-04-14 at 1 06 04 AM](https://user-images.githubusercontent.com/101579638/231866223-0933b102-eb8d-44a8-af0e-aecf64bcc34c.jpeg)
+
 ![WhatsApp Image 2023-04-14 at 1 06 02 AM](https://user-images.githubusercontent.com/101579638/231866052-beaa8e5a-eac5-4157-aceb-3af08e8bfcca.jpeg)
